@@ -1,4 +1,4 @@
-## Olá! Wilson Santos  ✌
+## Olá! Wilson Santos ✌
 ### intusiasta das novas tecnologias
 
 
